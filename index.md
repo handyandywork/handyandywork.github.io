@@ -1,5 +1,5 @@
 # Handy Andy
 
-## General Work and Garndening
+## General Work and Gardening
 
 email me at andy@handyandy.work
